@@ -11,4 +11,4 @@ Faculty of Engineering, Computer and Systems Engineering
 - Also Pizza
 **Especially fried chickennn**
 
-[You can find me on X](x.com/kyrilloswahid)
+[You can find me on X](https://twitter.com/kyrilloswahid)
